@@ -2,7 +2,7 @@ Hi, I'm Maria Gabriela! 👋
 
 Tech Sourcer | Talent Intelligence | AI Recruitment
 
-I'm a Tech Recruiter at INSI, focused on connecting technology professionals with opportunities and helping organizations identify specialized talent.
+I'm a Tech Recruiter at Insi, focused on connecting technology professionals with opportunities and helping organizations identify specialized talent.
 
 My work sits at the intersection of People, Technology, Business and AI.
 
